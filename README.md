@@ -1,0 +1,1 @@
+# przychodnia-Pan-Vita-Poniatowa
